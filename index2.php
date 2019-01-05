@@ -2,6 +2,7 @@
 
 ## One of Entertainment Weekly’s Most Anticipated Books of 2019
 
+https://images-na.ssl-images-amazon.com/images/I/41pOybUDvVL._SX330_BO1,204,203,200_.jpg
 
 ## Deskription Sugar Run: A NovelSugar Run: A Novel
 
